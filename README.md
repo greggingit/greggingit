@@ -14,7 +14,7 @@
 </details>
 <details>
 <summary> 𝚍𝚗𝚒 </summary>
-ᴜɴᴅᴇʀ 16 ɪᴡᴇᴄ || ᴊᴜꜱᴛ ᴅᴏɴ'ᴛ ʙᴇ ᴀ ᴡᴇɪʀᴅᴏ
+ᴜɴᴅᴇʀ 16 ɪᴡᴄ || ᴊᴜꜱᴛ ᴅᴏɴ'ᴛ ʙᴇ ᴀ ᴡᴇɪʀᴅᴏ
 </details>
 
 ![](https://files.catbox.moe/qvtzef.gif)
