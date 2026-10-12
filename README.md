@@ -6,6 +6,12 @@
 
 ![visitor badge](https://visitor-badge.laobi.icu/badge?page_id=miikering.231284521&left_color=black&right_color=black&left_text=apples%20fallen)
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31i7lhwa76xnx7hkbht7gojvp2ie&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=cbb857">
+  </a>
+</p>
+
 . . . . . ╰──╮<a href="https://www.glitter-graphics.com"><img src="http://dl6.glitter-graphics.net/pub/575/575266us4crzygeq.gif" width=32 height=32 border=0></a> ╭──╯ . . . . .
 
 <details>
