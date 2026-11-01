@@ -1,8 +1,11 @@
 <div align="center">
 
-┏━━━━━━━━━━━━━━━━━━━•°•°•❈•°•°•━━━━━━━━━━━━━━━━━━━━┓
+━━━━━━━━━━━━━━━━━━━━•°•°•❈•°•°•━━━━━━━━━━━━━━━━━━━━
 
-  ![](https://files.catbox.moe/eeagz2.webp)
+<img width="798" height="224" alt="ezgif-cropped (2)" src="https://github.com/user-attachments/assets/2504d66a-800e-4c19-aa6f-2fbac7282639" />
+
+
+⠀⠀
 
 ![visitor badge](https://visitor-badge.laobi.icu/badge?page_id=miikering.231284521&left_color=black&right_color=black&left_text=apples%20fallen)
 
@@ -23,8 +26,8 @@
 ᴜɴᴅᴇʀ 16 ɪᴡᴄ || ᴊᴜꜱᴛ ᴅᴏɴ'ᴛ ʙᴇ ᴀ ᴡᴇɪʀᴅᴏ
 </details>
 
-![](https://files.catbox.moe/qvtzef.gif)
+<img width="395" height="114" alt="ezgif-cropped" src="https://github.com/user-attachments/assets/6d1f3615-7e60-46ca-9b7e-94d70e4de173"/>
 
 [⤿ 𝚙𝚛𝚗𝚜](https://en.pronouns.page/@miikering) | [⤿ 𝚜𝚝𝚛𝚊𝚠](https://gregging-it.straw.page) | [⤿ 𝚊𝚝𝚊](https://miikering.atabook.org/)
 
-┗━━━━━━━━━━━━━━━━━━━━•°•°•❈•°•°•━━━━━━━━━━━━━━━━━━━━┛
+━━━━━━━━━━━━━━━━━━━━•°•°•❈•°•°•━━━━━━━━━━━━━━━━━━━━
