@@ -1,6 +1,6 @@
 <div align="center">
 
-━━━━━━━━━━━━━━━━━━━━•°•°•❈•°•°•━━━━━━━━━━━━━━━━━━━━
+━━━━━━━━━━━━━━━━━━━━━•°•°•❈•°•°•━━━━━━━━━━━━━━━━━━━━━━
 
 <img width="798" height="224" alt="ezgif-cropped (3)" src="https://github.com/user-attachments/assets/63bfd4f3-4bd8-4562-acf6-d6aad2254906" />
 
@@ -29,4 +29,4 @@
 
 [⤿ 𝚙𝚛𝚗𝚜](https://en.pronouns.page/@miikering) | [⤿ 𝚜𝚝𝚛𝚊𝚠](https://gregging-it.straw.page) | [⤿ 𝚊𝚝𝚊](https://miikering.atabook.org/)
 
-━━━━━━━━━━━━━━━━━━━━•°•°•❈•°•°•━━━━━━━━━━━━━━━━━━━━
+━━━━━━━━━━━━━━━━━━━━━━•°•°•❈•°•°•━━━━━━━━━━━━━━━━━━━━━━
