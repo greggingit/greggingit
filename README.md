@@ -2,7 +2,7 @@
 
 ━━━━━━━━━━━━━━━━━━━━━•°•°•❈•°•°•━━━━━━━━━━━━━━━━━━━━━━
 
-<img width="798" height="224" alt="ezgif-cropped (3)" src="https://github.com/user-attachments/assets/63bfd4f3-4bd8-4562-acf6-d6aad2254906" />
+<img width="768" height="215" alt="ezgif-cropped (3)" src="https://github.com/user-attachments/assets/63bfd4f3-4bd8-4562-acf6-d6aad2254906" />
 
 ⠀⠀
 
